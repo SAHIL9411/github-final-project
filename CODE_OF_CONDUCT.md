@@ -1,1 +1,1 @@
-
+A workplace code of conduct provides guidelines for ethical behavior, professional conduct, and compliance with laws and regulations. It often includes provisions on integrity, conflict of interest, confidentiality, and workplace relationships.
